@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NurKhamid
+- 👋 Hi, I’m @nurkhamid
 - 📫 How to reach me : khamid1196@gmail.com
 
 <!---
